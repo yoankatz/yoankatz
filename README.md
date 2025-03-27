@@ -4,9 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-
-https://www.shtik.co.il/
-
 https://animeshop.co.il/
 
 https://www.japan-torii.co.il/
